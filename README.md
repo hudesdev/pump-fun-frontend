@@ -6,4 +6,4 @@ You can check smart contract and backend repo as well.
 
 You can contact me if you want a better product.
 
-Telegram: https://twitter.com/husreo_tx
+Twitter: https://x.com/HudesDev
